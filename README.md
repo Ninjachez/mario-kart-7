@@ -1,4 +1,4 @@
-# if you're seeing this, i made an error. email me
+# mario kart 7
 CLICK THE "CODE" DROPDOWN, THEN DOWNLOAD ZIP!!
 
 
